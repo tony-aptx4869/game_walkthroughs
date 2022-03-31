@@ -1,5 +1,5 @@
-返校（Detention）全观察点攻略
-=============================
+返校 / Detention
+================
 
 :Author: Tony Chang
 :Platform: Steam

@@ -1,5 +1,5 @@
-临终降临 / 死亡成真
-===================
+临终降临 / 死亡成真 / Death Come True
+=====================================
 
 :Author: Tony Chang
 :Platform: PlayStation 4
